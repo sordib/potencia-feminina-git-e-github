@@ -1,1 +1,1 @@
-## otaria tocou na minha tela, mas eu amo
+## otaria tocou na minha tela, quero espancar
